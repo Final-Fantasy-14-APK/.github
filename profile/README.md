@@ -2,7 +2,7 @@
 
 Final Fantasy XIV Online (FFXIV) APK is a critically acclaimed MMORPG developed by Square Enix, set in the enchanting world of Eorzea. Originally released in 2010, the game faced significant criticism and was subsequently relaunched as A Realm Reborn in 2013. Since then, it has evolved through several major expansions, including Heavensward, Stormblood, Shadowbringers, and Endwalker, each adding new content, gameplay mechanics, and storylines that enrich the overall experience.
 
-<a href="Final Fantasy XIV Online Online?utm_source=github" target="_blank">Click to Download Final Fantasy XIV Online APK</a>
+<a href="https://apkpure.com/final-fantasy-xiv-crystal-world/com.square_enix.android_googleplay.ffxivcrystalworld?utm_source=github#google_vignette?utm_source=github" target="_blank">Click to Download Final Fantasy XIV Online APK</a>
 
 <img src="https://i.ytimg.com/vi/WRpdIL7_NII/maxresdefault.jpg" alt="Final Fantasy XIV Online apk" title="Final Fantasy XIV Online apk" style="max-width: 100%;">
 
