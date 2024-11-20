@@ -2,7 +2,7 @@
 
 Final Fantasy XIV (FFXIV) is a critically acclaimed MMORPG developed by Square Enix, set in the enchanting world of Eorzea. Originally released in 2010, the game faced significant criticism and was subsequently relaunched as A Realm Reborn in 2013. Since then, it has evolved through several major expansions, including Heavensward, Stormblood, Shadowbringers, and Endwalker, each adding new content, gameplay mechanics, and storylines that enrich the overall experience.
 
-<a href="https://apkpure.com/sprunki-incredibox/com.sprunki.android?utm_source=github" target="_blank">Click to Download Final Fantasy XIV APK</a>
+<a href="https://windows.apkpure.com/final-fantasy-xiv-free-trial?utm_source=github" target="_blank">Click to Download Final Fantasy XIV APK</a>
 
 <img src="https://i.ytimg.com/vi/WRpdIL7_NII/maxresdefault.jpg" alt="Final Fantasy XIV apk" title="Final Fantasy XIV apk" style="max-width: 100%;">
 
